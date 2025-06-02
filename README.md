@@ -1,2 +1,2 @@
 # Doldurcağım burayı...
-![main](https://imgur.com/kABTV9z)
+![Image](https://github.com/user-attachments/assets/416127da-f80f-4b18-827e-51649a09f848)
