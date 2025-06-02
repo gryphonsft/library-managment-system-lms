@@ -1,2 +1,2 @@
 # Doldurcağım burayı...
-![main](https://imgur.com/a/zetVvl0)
+![main](https://imgur.com/kABTV9z)
